@@ -5,3 +5,4 @@ CRACKED BY ripoffs ON DISCORD https://discord.gg/hMxjsAYJdt
 3. MAKE SURE TO ALWAYS USE ROBLOX WEB VERSION(ROBLOX OFFICIAL WEBSITE)
 my discord: ripoffs
 my telegram: @elymltdd
+LATEST VERSION DOWNLOAD LINK https://github.com/thatwhowascreated/synapse-z-crack/blob/main/Release.zip
